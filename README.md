@@ -1,2 +1,1 @@
-# the-wiwis
-“yume” / self-ship stuffs idk
+work in pawgress 💚 be patient with us
